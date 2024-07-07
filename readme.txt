@@ -14,3 +14,6 @@ Foi uma reportagem falando sobre a finalização de mais um Bootcamp pela DIO
 
 ## 💭 Reflexão (Opcional)
 Muito legal o resultado e a facilidade de uso.
+
+Abaixo segue o link do Linkedin:
+https://www.linkedin.com/feed/update/urn:li:activity:7215741213432287233/
